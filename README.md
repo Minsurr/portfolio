@@ -30,5 +30,4 @@
 
 ![16](https://user-images.githubusercontent.com/77606739/196739441-def11d5e-8bde-4a0f-9e4b-2b1e898c39bc.png)
 
-![17](https://user-images.githubusercontent.com/77606739/196739463-a7266f7f-352f-44e6-bb70-6a6513a191df.png)
-
+![17](https://user-images.githubusercontent.com/77606739/196744236-2bb8c110-14e5-4047-a0bb-2be48ac80a94.png)
